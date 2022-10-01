@@ -2,6 +2,8 @@
 CRACKING FACEBOOK FREE
 
 # TIDAK SEMUA HP MENDUKUNG
+![106824690-8dd73a00-66ad-11eb-89e2-53e13ac6f594](https://user-images.githubusercontent.com/98962829/193396293-bcd278aa-6d0c-4681-8a06-9c4fa83880f2.gif)
+
 # MENU
 
 # HASIL CRACK
